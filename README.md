@@ -1,4 +1,4 @@
-# Play Sprunki Corruptbox 3 Mod Game Online
+# Play Sprunki Corruptbox 3 Mod Online
 
 Welcome to **Sprunki Corruptbox 3 Mod** – a cutting-edge music creation platform that inspires your creativity. Featuring engaging characters, a unique sound library, and an easy-to-use interface, Sprunki Corruptbox 3 Mod is the perfect environment for musical exploration and self-expression. Start your journey now and unlock your artistic potential with Sprunki Corruptbox 3 Mod.
 
