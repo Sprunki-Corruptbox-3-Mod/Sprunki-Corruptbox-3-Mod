@@ -5,8 +5,8 @@ Welcome to **Sprunki Corruptbox 3 Mod** – a cutting-edge music creation platfo
 ## Play Sprunki Corruptbox 3 Mod Now
 
 Are you ready to embark on a magical musical adventure? Let the journey begin!  
-- [Sprunki Corruptbox 3 Mod](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)  
-- [Corruptbox 2 But Sprunki](https://sprunkisinner.org/corruptbox-2-but-sprunki)  
+- [Sprunki Corruptbox 3 Mod](https://sprunkicorruptbox.com/sprunki-corruptbox-3-infected-war)  
+- [Corruptbox 2 But Sprunki](https://sprunkicorruptbox.com/corruptbox-2-but-sprunki)  
 - [Sprunki Gyat](https://sprunkisinner.org/sprunki-gyat)  
 
 [![Sprunki Corruptbox 3 Mod](https://sprunkisinner.org/_nuxt/sprunki-corruptbox-3-infected-war.CMJcWQbS.webp)](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
